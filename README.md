@@ -2,4 +2,4 @@
 
 ## MIDI track
 
-![A.png](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f6/Ableton.svg/2560px-Ableton.svg.png)
+![A.png](https://cdn.gearnews.com/wp-content/uploads/2022/06/Ableton-banner-770x425.jpeg)
